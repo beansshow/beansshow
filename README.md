@@ -1,11 +1,12 @@
-
-CAUSE ALL MY DREAMS ARE SCARY ONES,
+oh, i dont want to see me,
+i wanna be trapped in you.
 </p>
 <p align="center">
-<img src="https://files.catbox.moe/1oap2j.png" width="50%" height="50%">
+<img src="https://files.catbox.moe/t9p0dz.png" width="50%" height="50%">
 </p>
 <p align="right">
-CAN I HAVE YOURS INSTEAD?
+oh, i dont want to be me.
+but im gonna pretend for you.
  
 <p align="center">
 EN.PRONOUNS.PAGE/@ASPDDOOR
