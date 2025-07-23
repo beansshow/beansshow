@@ -1,5 +1,5 @@
 <p align="center">
-<img src="https://files.catbox.moe/3wcqiq.png" width="50%" height="50%">
+<img src="https://files.catbox.moe/1a71ol.png" width="50%" height="50%">
 <p align="center">
 en.pronouns.page/@5sos3
 </p>
