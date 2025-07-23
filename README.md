@@ -13,6 +13,6 @@ he　shi　　　intersex lesbian　　tkn
 npdschizo　　systemhost　　always iwcuf
 　　
 <p align="center">
-<img src="https://files.catbox.moe/kpscmx.png" width="10%" height="10%"> 　　yuri　trust...
+<img src="https://files.catbox.moe/kpscmx.png" width="10%" height="10%"> 　<<　yuri　trust...
 </p>
    ︎︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎
