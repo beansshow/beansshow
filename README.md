@@ -3,7 +3,7 @@ en.pronouns.page/@5sos3
 </p>
 　
 <p align="center">
-<img src="https://files.catbox.moe/1a71ol.png" width="50%" height="50%">
+<img src="https://files.catbox.moe/p9g75n.png" width="50%" height="50%">
 
 <p align="center">
 spectre　　or　　door
@@ -13,6 +13,6 @@ he　shi　　　intersex lesbian　　tkn
 npdschizo　　systemhost　　always iwcuf
 　　
 <p align="center">
-<img src="https://files.catbox.moe/kpscmx.png" width="10%" height="10%"> 　<<　yuri　trust...
+<img src="https://files.catbox.moe/lky6qk.webp" width="5%" height="5%"> 　<<　me　trust...
 </p>
    ︎︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎
