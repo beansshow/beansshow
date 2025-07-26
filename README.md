@@ -11,7 +11,9 @@ spectre　　or　　potion
 he　shi　　　intersex lesbian　　tkn
 <p align="center">
 npdschizo　　systemhost　　always iwcuf
-　　
+<p align="center">
+crowd　&　cover discomf　　　ask 2 c*h
+   　　　　　　
 <p align="center">
 <img src="https://files.catbox.moe/0y5gpz.png" width="10%" height="10%"><<　me　trust...
 </p>
