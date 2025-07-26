@@ -10,9 +10,9 @@ spectre　　or　　potion
 <p align="center">
 he　shi　　　intersex lesbian　　tkn
 <p align="center">
-npdschizo　　systemhost　　always iwcuf
+npdschizo　　did system　　introj. heavy
 <p align="center">
-crowd　&　cover discomf　　　ask 2 c*h
+crowd discomf　　　always iwcuf
    　　　　　　
 <p align="center">
 <img src="https://files.catbox.moe/0y5gpz.png" width="10%" height="10%"><<　me　trust...
