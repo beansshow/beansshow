@@ -10,7 +10,7 @@ spectre　　or　　potion
 <p align="center">
 he　shi　　　intersex lesbian　　tkn
 <p align="center">
-npdschizo　　did system　　introj. heavy
+npdschizo　　did system　　extremely mentally unstable
 <p align="center">
 crowd discomf　　　always iwcuf
    　　　　　　
