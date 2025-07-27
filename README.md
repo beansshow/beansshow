@@ -6,15 +6,15 @@ en.pronouns.page/@5sos3
 <img src="https://files.catbox.moe/p9g75n.png" width="50%" height="50%">
 
 <p align="center">
-spectre　　or　　potion
+spectre　　or　　DOOR!!!!!
 <p align="center">
-he　shi　　　intersex lesbian　　tkn
+he/shi　SHI PREF　　　intersex LESBIAN　　SINGLE LADY ;3c
 <p align="center">
-npdschizo　　did system　　extremely mentally unstable
+NPDSCHIZO　　DID SYSTEN　　eXTREMELYYY mentallY Unstable
 <p align="center">
-crowd discomf　　　always iwcuf
+CROWD DISCOMFFF.　　　always IWCUF PLEASE
    　　　　　　
 <p align="center">
-<img src="https://files.catbox.moe/0y5gpz.png" width="10%" height="10%"><<　me　trust...
+<img src="https://files.catbox.moe/mbg3sz.png" width="10%" height="10%">　<<　ME LOL...
 </p>
    ︎︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎
