@@ -16,4 +16,6 @@ CROWD DISCOMFFF.　　　always IWCUF PLEASE
    　　　　　　
 <p align="center">
 <img src="https://files.catbox.moe/mbg3sz.png" width="10%" height="10%">　<<　ME LOL...
+<p align="center">
+<img src="https://hit.yhype.me/github/profile?account_id=168690679">
 </p>
