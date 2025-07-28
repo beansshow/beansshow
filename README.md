@@ -7,11 +7,11 @@ https://5sos3.atabook.org
 <p align="center">
 <img src="https://komarev.com/ghpvc/?username=beansshow&label=Friensd!!!!!+HAHA&color=6e370d">
 <p align="center">
-spectre　　or　　DOOR!!!!!
+spectre　　door　　or　　other kins :P
 <p align="center">
-he/shi　SHI PREF　　　intersex LESBIAN　　SINGLE LADY ;3c
+he/shi　SHI/HIR PREF　　　intersex LESBIAN　　SINGLE IDGAF BRUV
 <p align="center">
-NPDSCHIZO　　DID SYSTEM　　eXTREMELYYY mentallY Unstable
+NPDSCHIZO　　DID SYSTEM　　eXTREMELYYY mentally unstable
 <p align="center">
 CROWD DISCOMFFF.　　　always IWCUF PLEASE
    　　　　　　
