@@ -10,7 +10,7 @@ https://5sos3.atabook.org
 <img src="https://files.catbox.moe/p9g75n.png" width="50%" height="50%">
 </p>
 
-system　fictive.　sourcemates　ok,　i　dont　care.　potion　int　　╱　　high　switch　rate,　skins　vary　on　whos　fronting　　╱　　always　iwcare　unless　friend　　╱　　pc　player,　almost always　offtab,　w2i　(though　i　might　not　respond　anyways　LOL)
+system　fictive.　sourcemates　ok,　i　dont　care.　potion　int　　╱　　high　switch　rate,　skins　vary　on　whos　fronting　　╱　　always　iwcare　unless　friend　　╱　　pc　player,　almost always　offtab,　w2i　(might　not　respond　anyways　LOL)
 <p align="center">
 <img src="https://files.catbox.moe/mbg3sz.png" width="5%" height="5%">　<<　me　irl　trust
 <p align="center">
