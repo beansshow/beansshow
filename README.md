@@ -11,8 +11,6 @@ https://5sos3.atabook.org
 </p>
 
 system　fictive.　sourcemates　ok,　i　dont　care.　potion　int　　╱　　aspd　npbpd　did　autism　cptsd　　╱　　always　iwcare　unless　friend　　╱　　pc　player,　almost always　offtab,　w2i　(though　i　might　not　respond　anyways　LOL)
-
-　　　
 <p align="center">
 <img src="https://files.catbox.moe/mbg3sz.png" width="5%" height="5%">　<<　me　irl　trust
 <p align="center">
