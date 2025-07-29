@@ -5,7 +5,7 @@ https://5sos3.atabook.org
 <img src="https://files.catbox.moe/p9g75n.png" width="50%" height="50%">
 </p>
 
-**emily**,　door,　or　other　kins.　　╱　　he/shi/love　+neos,　he/him　preference　　╱　　no　dni.　freeblocker　　╱　　intersex　guygirl　questioning/unlabeled　proqueer　　╱　　system　fictive.　sourcemates　iwc　　╱　　aspd　npbpd　did　autism　　╱　　severely　mentally　unstable,　always　iwcuf　　╱　　n1　dotion　fan　/VERYsrs　　╱　　pc　player,　almost always　offtab,　w2i　(though　i　might　not　respond　anyways　LOL)
+**emily**,　door,　or　other　kins.　　╱　　he/shi/love　+neos,　he/him　preference　　╱　　no　dni.　freeblocker　　╱　　intersex　guygirl　questioning/unlabeled　proqueer　　╱　　system　fictive.　sourcemates　ok,　i　dont　care.　potion　int　　╱　　aspd　npbpd　did　autism　cptsd　　╱　　always　iwcare　unless　friend　　╱　　pc　player,　almost always　offtab,　w2i　(though　i　might　not　respond　anyways　LOL)
 
 　
 <p align="center">
