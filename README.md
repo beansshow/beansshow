@@ -7,7 +7,7 @@ https://5sos3.atabook.org
 <p align="center">
 <img src="https://komarev.com/ghpvc/?username=beansshow&label=Friensd!!!!!+HAHA&color=6e370d">
 <p align="center">
-spectre　　door　　or　　other kins :P
+spectre　　door　　ORRR other kins :P
 <p align="center">
 he/shi　SHI/HIR PREF　　　intersex LESBIAN　　SINGLE IDGAF BRUV
 <p align="center">
