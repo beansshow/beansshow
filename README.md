@@ -5,7 +5,7 @@ https://5sos3.atabook.org
 <img src="https://files.catbox.moe/p9g75n.png" width="50%" height="50%">
 </p>
 
-**emily**,　door,　or　other　kins.　　　he　shi,　shi/hir　preference　　　system　fictive　　　aspd　npbpd　did　autism　　　severely　mentally　ill,　always　iwcuf　　　n1　dotion　fan　/VERYsrs　　　nonsharing　disc (5sos3)　riako,　doubles　dni.
+**emily**,　door,　or　other　kins.　　　he　shi,　shi/hir　preference　　　system　fictive.　sourcemates　iwc　　　aspd　npbpd　did　autism　　　severely　mentally　ill,　always　iwcuf　　　n1　dotion　fan　/VERYsrs　　　nonsharing　disc (5sos3)　riako,　doubles　dni.
 
 　
 <p align="center">
