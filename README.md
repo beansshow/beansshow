@@ -4,7 +4,7 @@ https://5sos3.atabook.org
 
 
     
-**firework**　or　other　kins.　　╱　　he/shi/love　+neos,　he/him　preference　　╱　　no　dni.　freeblocker　　╱　　intersex　guygirl　questioning/unlabeled　proqueer　　╱　　aspd　npbpd　did　autism　cptsd　schizo　　╱　　n1　firedoor　enjoyer　EVER
+**firework**　or　other　kins.　　╱　　he/shi/love　+neos,　he/him　preference　　╱　　no　dni.　freeblocker　　╱　　intersex　guygirl　questioning/unlabeled　proqueer　　╱　　aspd　npbpd　did　autism　cptsd　schizo　　╱　　n1　firedoor　enjoyer
 
 <p align="center">
 <img src="https://files.catbox.moe/s5m9k7.jpeg" width="25%" height="25%">
